@@ -1,2 +1,0 @@
-# joshuabogart.github.io
-Portfolio
